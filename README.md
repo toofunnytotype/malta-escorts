@@ -2,7 +2,8 @@ SexoMalta.Date
 
 https://sexoMalta.date/ is a discreet escort and model directory for Malta, offering verified profiles with cryptocurrency payments
 
-<img width="2848" height="7628" alt="Screenshot" src="https://github.com/user-attachments/assets/56bfd1f6-5c5a-4aca-a35e-c3517f8a2fc9" />
+<img width="2848" height="7628" alt="Updated Screen" src="https://github.com/user-attachments/assets/d43d9886-5b2b-482c-82a9-38ca190e69ee" />
+
 
 # Discover Escorts & Models Across Malta and Gozo
 
